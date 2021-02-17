@@ -1,0 +1,1 @@
+![Image of Mikael Torndahl](https://scontent-arn2-1.xx.fbcdn.net/v/t1.0-9/79197390_10158104380932932_6636672298587783168_n.jpg?_nc_cat=107&ccb=3&_nc_sid=09cbfe&_nc_ohc=JvPleTo-B9wAX-A_Bu3&_nc_ht=scontent-arn2-1.xx&oh=ae0e120ee3785d624fb6c08cba16d68b&oe=6052DF8E)
